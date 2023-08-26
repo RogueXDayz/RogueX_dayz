@@ -3,4 +3,4 @@
 
 
 Looking for answers to your questions within the life of RogueX life? Then you have came to the right place, have a look around and if you have any further questions create a ticket within the discord :) 
-If you havent already make sure to join our discord  at https://discord.gg/kBGsTJf4 this is where the community thrives :)
+If you havent already make sure to join us  at https://discord.gg/kBGsTJf4 this is where the community thrives, talk to your friends and ask any questions you may have :)
